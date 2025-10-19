@@ -10,7 +10,7 @@
 ## 
 ‘* Oiiie! Meu nome é Estefany e sou estudante de Engenharia de Software. 
 
-✩°｡ Sou apaixonada por Desenvolvimento de Software, especialmente na parte do back-end, e estou sempre buscando aprender como as coisas funcionam "por trás das telas" 
+✩°｡ Sou apaixonada por Desenvolvimento de Software, especialmente na parte do back-end e estou sempre buscando aprender como as coisas funcionam "por trás das telas" 
 
 ⋆˚⋆ Atualmente, estou estudando Java e MySQL, mas também estou me especializando em com HTML, CSS, Python e React. 
 
