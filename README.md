@@ -16,7 +16,7 @@
 
 ⊹ Sempre estou estudando e evoluindo — inclusive faço cursos online.
 
-*ੈ‧ Fora do mundo tech, amo ouvir música e tocar instrumentos (ogão eletronico, ukulele e flauta).
+*ੈ‧ Fora do mundo tech, amo ouvir música e tocar instrumentos (orgão eletronico, ukulele e flauta).
 
 ⬪ˊ Sou criativa, curiosa, dedicada e adoro trabalhar em equipe. Acredito que a tecnologia é ainda mais mágica quando é compartilhada.
 
